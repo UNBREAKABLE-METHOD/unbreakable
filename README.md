@@ -256,4 +256,6 @@ This is the flag in the ground. It exists, it runs, and it is not like anything 
 
 Watch what happens next.
 
+Access is by application, not sign-up. If you want in, the first step is here: **[Request access](https://forms.gle/Nrs27KeMTRKGwv9A8)**
+
 *UNBREAKABLE. Fitness starts in the mind, not the body. Built by Sean Gaynor Doyle and Union.*
